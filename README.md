@@ -1,16 +1,12 @@
-## Hi there 👋
+$$\textsf{\color{#20356D}Call me Freemind, or Max, or just whoever my pony is. He/Him}$$
+$$\textsf{\color{#3A4063}I am 18 so if ur -17 and I don't already know you uhm we can talk I guess but no friending me outside of PT plz!}$$
+$$\textsf{\color{#544B59}c+h ALWAYS welcome!!! I love being interacted with!!!!}$$
+$$\textsf{\color{#6E564F}If I don't react or respond I am off tab.}$$
+$$\textsf{\color{#886145}I like a lot of things but I tend to hyperfixate on one thing at a time, here are some I've noticed on PT thus are relevant:}$$
+$$\textsf{\color{#A26C3B}Ghost B.C., Death Stranding, Half-Life, MLP, X-Men}$$
+$$\textsf{\color{#BC7731}DNI is pretty simple I'll just hide you if I don't like you.}$$
+<div align="center">
 
-<!--
-**freemansmindepisode45/freemansmindepisode45** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[Guestbook](https://freemansmindepisode45.atabook.org/?page=1) &nbsp;&nbsp;|&nbsp;&nbsp; [Strawpage](https://deathstranding.straw.page)
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+</div>

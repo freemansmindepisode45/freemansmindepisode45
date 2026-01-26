@@ -7,6 +7,6 @@ $$\textsf{\color{#A26C3B}Ghost B.C., Death Stranding, Half-Life, MLP, X-Men}$$
 $$\textsf{\color{#BC7731}DNI is pretty simple I'll just hide you if I don't like you.}$$
 <div align="center">
 
-[Guestbook](https://freemansmindepisode45.atabook.org/?page=1) &nbsp;&nbsp;|&nbsp;&nbsp; [Strawpage](https://deathstranding.straw.page)
+[Guestbook](https://freemansmindepisode45.atabook.org/?page=1) &nbsp;&nbsp;|&nbsp;&nbsp; [Strawpage](https://deathstranding.straw.page) &nbsp;&nbsp;|&nbsp;&nbsp; [Last.FM](https://www.last.fm/user/death_stranding) &nbsp;&nbsp;|&nbsp;&nbsp; [Pronouns.Page](https://en.pronouns.page/@freemansmind)
 
 </div>
